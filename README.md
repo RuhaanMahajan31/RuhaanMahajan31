@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RuhaanMahajan31
+- 👀 I’m interested in Cricket (Sport), Productivity and Graphic Desiging 
+- 🌱 I’m currently a middle school student 
+- 💞 I am not looking for any type of internship or job 
+- 📫 How to reach me (Contacts to be told soon) 
